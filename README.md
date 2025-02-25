@@ -1,7 +1,7 @@
 # .・。.・゜✭・.・✫・゜・。.
 **All about me!!!**
 
-- I'm Chris or Christopher!! (Kris is fine too,,,)
+- I'm Chris or Christopher!! Acid or waters are okay!! (Kris is fine too,,,)
 - I'm above the age of 16 ^^
 - I like homestuck, undertale and partially eddsworld...
 - I am an artist and animator!
@@ -16,6 +16,7 @@
 - Do not vent to me if you're not a friend or without letting me know, I don't know how to help you if that happens.
 - Do not make me talk to you about myself/about my problems & struggles unless we're friends.
 - be mindful of my statuses and ask (if i have dniuf or iwc), I get moody & upset easily and will lash out on you unintentionally.
+- I'm a very emotionally attached person, please interact with caution if I am upset.
 - DNI basic cetera, darkship/proship/comship is a hard no from me, attacking people without any good reason...
 - respect me and other people's boundaries! a block will be resulted!
 - (For pony town users), If I dress as a character that is problematic by lore; please keep in mind that I simply only like how they look or the character itself! Please do not engage in inappropiate actions towards or with me, I do not appreciate it! I don't do any fandom shipping or anything like that, so do not expect me to follow along.
