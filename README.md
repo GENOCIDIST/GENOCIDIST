@@ -13,12 +13,15 @@
 # .　 . • ☆ . ° .• °:. *₊ ° . ☆
 **Things you should know before interacting w me!**
 
+- If i do or said something wrong, please talk to me and confront me about it! i appreciate that a lot!!
+- I don't say swears or slurs, it's a rule I made for myself.
+- I'm a heavily emotional person, I will be attached and talk a lot if I'm comfortable with you!
 - If I am blunt about the things I say, I mean it and don't be upset over it.
 - Do not vent to me if you're not a friend or without letting me know, I don't know how to help you if that happens.
 - Do not make me talk to you about myself/about my problems & struggles unless we're friends.
 - be mindful of my statuses and ask (if i have dniuf or iwc), I get moody & upset easily and will lash out on you unintentionally.
 - I'm a very emotionally attached person, please interact with caution if I am upset.
-- DNI basic cetera, darkship/proship/comship is a hard no from me, attacking people without any good reason...
+- basic DNI in general, darkship/proship/comship is a hard no from me, attacking people without any good reason...
 - respect me and other people's boundaries! a block will be resulted!
 - (For pony town users), If I dress as a character that is problematic by lore; please keep in mind that I simply only like how they look or the character itself! Please do not engage in inappropiate actions towards or with me, I do not appreciate it! I don't do any fandom shipping or anything like that, so do not expect me to follow along.
 
