@@ -8,7 +8,7 @@
 - I have a real name that's only used by close friends/loved ones, so please respect that and do not use it to address me!
 - I'm a friendly & affectionate person in a platonic way! so I love giving gifts, drawing things and expressing myself by text to you!! ˚₊· ͟͟͞͞➳❥
 - I can be a blunt and unpredictable person, please excuse me if I do not use tonetags.
-- If I get upset, be aware of the things I can say.
+- If I get upset, be aware of the things I can say. I make it clear that I feel left out or still remember being left out, I will be moody about it.
 
 # .　 . • ☆ . ° .• °:. *₊ ° . ☆
 **Things you should know before interacting w me!**
