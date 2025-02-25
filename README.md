@@ -1,6 +1,7 @@
 # All about me!!!
 
 - I'm Chris or Christopher!! (Kris is fine too,,,)
+- I'm above the age of 16 ^^
 - I like homestuck, undertale and partially eddsworld...
 - I am an artist and animator!
 - I have a real name that's only used by close friends/loved ones, so please respect that and do not use it to address me!
