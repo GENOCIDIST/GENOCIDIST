@@ -3,11 +3,12 @@
 
 - I'm Chris or Christopher!! Acid or waters are okay!! (Kris is fine too,,,)
 - I'm above the age of 16 ^^
-- I like homestuck, undertale and partially eddsworld...
+- I like homestuck, undertale, deltarune and partially eddsworld...
 - I am an artist and animator!
 - I have a real name that's only used by close friends/loved ones, so please respect that and do not use it to address me!
 - I'm a friendly & affectionate person in a platonic way! so I love giving gifts, drawing things and expressing myself by text to you!! ˚₊· ͟͟͞͞➳❥
-- I can be a blunt and high opinion type person.
+- I can be a blunt and unpredictable person, please excuse me if I do not use tonetags.
+- If I get upset, be aware of the things I can say.
 
 # .　 . • ☆ . ° .• °:. *₊ ° . ☆
 **Things you should know before interacting w me!**
