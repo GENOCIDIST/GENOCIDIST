@@ -22,6 +22,8 @@
 - I'm a heavily emotional person, I will be more cheerful and talk a lot if I'm comfortable with you!
 - If I am blunt about the things I say, I mean it and don't be upset over it.
 - I don't joke with people I recently met but will do over the time we've been friends for.
+- be aware that I'm 16+ not 18 yet! I do not appreciate any flirting if you're above 18 (jokingly is fine)
+- I do affectionate gestures in a platonic way! please do not mistake it for romance!
 - SA/SH jokes are not allowed near me, it is a trigger for me.
 - Do not vent to me if you're not a friend or without letting me know, I don't know how to help you if that happens.
 - Do not make me talk to you about myself/about my problems & struggles unless we're friends.
