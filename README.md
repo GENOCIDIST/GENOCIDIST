@@ -15,8 +15,10 @@
 
 - If i do or said something wrong, please talk to me and confront me about it! i appreciate that a lot!!
 - I don't say swears or slurs, it's a rule I made for myself.
-- I'm a heavily emotional person, I will be attached and talk a lot if I'm comfortable with you!
+- I'm a heavily emotional person, I will be more cheerful and talk a lot if I'm comfortable with you!
 - If I am blunt about the things I say, I mean it and don't be upset over it.
+- I don't joke with people I recently met but will do over the time we've been friends for.
+- SA/SH jokes are not allowed near me, it is a trigger for me.
 - Do not vent to me if you're not a friend or without letting me know, I don't know how to help you if that happens.
 - Do not make me talk to you about myself/about my problems & struggles unless we're friends.
 - be mindful of my statuses and ask (if i have dniuf or iwc), I get moody & upset easily and will lash out on you unintentionally.
