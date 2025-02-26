@@ -5,8 +5,6 @@
 - I use any pronouns! He/Him, She/Her, They/Them!
 - I'm above the age of 16 ^^
 - I can be considered male or female, whichever you like!
-- Bisexual <3
-- I have a loving partner of 10 months! My best friend of 7 years, now my loving boyfriend! (I love you Joro!!)
 - I like homestuck, undertale, deltarune and partially eddsworld...
 - I am an artist and animator!
 - I have a real name that's only used by close friends/loved ones, so please respect that and do not use it to address me!
