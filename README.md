@@ -18,6 +18,7 @@
 **Things you should know before interacting w me!**
 
 - If i do or said something wrong, please talk to me and confront me about it! i appreciate that a lot!!
+- If i feel like i'm talking too much or feel like shutting up, i'm sorry for that.
 - I don't say swears or slurs, it's a rule I made for myself.
 - I'm a heavily emotional person, I will be more cheerful and talk a lot if I'm comfortable with you!
 - If I am blunt about the things I say, I mean it and don't be upset over it.
