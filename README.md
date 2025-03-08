@@ -3,6 +3,7 @@
 ***About me!:***
 
 I'm Chris! I go by Christopher, Kris, Acid or Waters!! I do have a real name that's used by closest friends & my partner. Please respect that and never use it to address me!
+I'm currently 16, will turn 17 soon in 3 months! ^^
 
  ***Some interests I have/like!:***
  - Homestuck
