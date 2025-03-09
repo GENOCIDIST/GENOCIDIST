@@ -82,3 +82,5 @@ I'm Chris! I go by Christopher, Kris, Acid or Waters!! I do have a real name tha
 - Gb (DNI)
 - Ty (DNI)
 - Ethan (I'm sorry if this is your name, but it's a trigger even for me.)
+
+***MIKU ART BELONGS TO SAINTTUFA ON INSTAGRAM!!***
