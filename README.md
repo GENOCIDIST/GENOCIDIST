@@ -38,7 +38,6 @@ I'm Chris! I go by Christopher, Kris, Acid or Waters!! I do have a real name tha
 ***FRIENDS I HANG OUT W A LOT!!/FRIEND OF A FRIEND I THINK R COOL!!:***
 
 - Austin (Ayaa), LOVE YOU TO THE MOON AND BACK!! MY GREATEST ONLINE BROTHER!
-- Max/Cesar, You're the sweetest n caring person you could be when you're around me <3
 - Felix, SWEETEST THING EVER, treating you like my little sib even though we're not that far younger or older from each other <3
 - Scottie, SWEETEST MUNCHKIN GRGRHEGR, LOVE YOU SO MUCH! /P
 - Veev, You're so sweet!! I will value our friendship! <3
@@ -53,6 +52,7 @@ I'm Chris! I go by Christopher, Kris, Acid or Waters!! I do have a real name tha
 ***BYI!:***
 
 - I can be very blunt with you! please don't get upset with whatever I say!! :(
+- Be honest with me. if you have a problem with me, at least take the time to talk to me about it! it's ANNOYING!
 - NEVER make fun of my mental health! I am trying to better myself but getting pushed down by my guardians even more, so please don't do the same!!
 - Minors below the age of 13 are on thin ice! I will only allow being friends and nothing MORE!
 - People above the age of 19+ are also on thin ice, I don't like your sketchy intentions unless you're only being friends w me/or talking to me normally ^^
