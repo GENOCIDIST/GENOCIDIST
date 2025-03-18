@@ -38,8 +38,8 @@ I'm Chris! I go by Christopher, Kris, Acid or Waters!! I do have a real name tha
 ***FRIENDS I HANG OUT W A LOT!!/FRIEND OF A FRIEND I THINK R COOL!!:***
 
 - Austin (Ayaa), LOVE YOU TO THE MOON AND BACK!! MY GREATEST ONLINE BROTHER!
-- Max/Cesar, LOVE YOU BUD!! You're so calm & sweet w me!!!
-- Felix, SWEETEST THING EVER, treating you like my little sib even though we're not that far younger or older from each other <3
+- Max/Strife, LOVE YOU BUD!! You're so calm & sweet w me!!!
+- Felix, SWEETEST THING EVER!!! <3
 - Bryce, SWEETEST PERSON AAAAH, YOU & FELIX MAKE ME JUMP JOYOUSLY!!
 - Scottie, SWEETEST MUNCHKIN GRGRHEGR, LOVE YOU SO MUCH! /P
 - Veev, You're so sweet!! I will value our friendship! <3
