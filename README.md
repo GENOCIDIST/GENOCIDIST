@@ -53,6 +53,7 @@ I'm Chris! I go by Christopher, Kris, Acid or Waters!! I do have a real name tha
 ***BYI!:***
 
 - I can be very blunt with you! please don't get upset with whatever I say!! :(
+- I can be nonverbal at times due to my Chromebook lagging or I feel really out of place. I will express myself with gestures or will whisper back to you if you did first! ^^
 - Be honest with me. if you have a problem with me, at least take the time to talk to me about it! it's ANNOYING!
 - NEVER make fun of my mental health! I am trying to better myself but getting pushed down by my guardians even more, so please don't do the same!!
 - Minors below the age of 13 are on thin ice! I will only allow being friends and nothing MORE!
