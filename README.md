@@ -14,6 +14,21 @@ I'm Chris! I go by Christopher, Kris, Acid or Waters!! I do have a real name tha
 - I have a romantic partner (M,17), I will turn down ANY confessions!
 - I'm a very affectionate person! Everything I say to you or anyone as a friend will be seen as a platonic act! I do not carry any romantic feelings in any way!
 
+***FRIENDS I HANG OUT W A LOT!!/FRIEND OF A FRIEND I THINK R COOL!!:***
+
+- Austin (Ayaa), LOVE YOU TO THE MOON AND BACK!! MY GREATEST ONLINE BROTHER!
+- Max/Strife, LOVE YOU BUD!! You're so calm & sweet w me!!!
+- Felix, SWEETEST THING EVER!!! <3
+- Bryce, SWEETEST PERSON AAAAH, YOU & FELIX MAKE ME JUMP JOYOUSLY!!
+- Scottie, SWEETEST MUNCHKIN GRGRHEGR, LOVE YOU SO MUCH! /P
+- Veev, You're so sweet!! I will value our friendship! <3
+- Nacho, Nahco... YOU'RE COOL!! dni <3
+- Keithian/Nick, coolest bro! finna beat you out of love
+- Centifiend, HII YOU'RE AWESOME!!!!
+- Judas, You're comfortable to be around with! ^^
+- Eden/Bro, Funny at times but overall, you and your alters are dope dude!
+- Will add more when I meet coolio friends!
+
 ![mewhenmiku](https://github.com/user-attachments/assets/399161a4-da28-41df-b832-de1b706e2b21)
 
 
@@ -34,18 +49,6 @@ I'm Chris! I go by Christopher, Kris, Acid or Waters!! I do have a real name tha
  - Resident evil
  - Partially Eddsworld... 
  - Call the name of the night (Manga!)
-
-***FRIENDS I HANG OUT W A LOT!!/FRIEND OF A FRIEND I THINK R COOL!!:***
-
-- Austin (Ayaa), LOVE YOU TO THE MOON AND BACK!! MY GREATEST ONLINE BROTHER!
-- Max/Strife, LOVE YOU BUD!! You're so calm & sweet w me!!!
-- Felix, SWEETEST THING EVER!!! <3
-- Bryce, SWEETEST PERSON AAAAH, YOU & FELIX MAKE ME JUMP JOYOUSLY!!
-- Scottie, SWEETEST MUNCHKIN GRGRHEGR, LOVE YOU SO MUCH! /P
-- Veev, You're so sweet!! I will value our friendship! <3
-- Nacho, Nahco... I think you're cool dude..!!
-- Eden/Bro, Funny at times but overall, you and your alters are dope dude!
-- Will add more when I meet coolio friends!
 
 ![MIKKKUU](https://github.com/user-attachments/assets/291cdb3c-f4d9-42b0-aafb-202dfe1b55a7)
 
