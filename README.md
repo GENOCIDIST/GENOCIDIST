@@ -1,5 +1,11 @@
 # .・。.・゜✭・.・✫・゜・。.
 
+# WARNING!!
+
+I WILL ONLY BE ONLINE FROM 8:40AM CST TO 4:36PM CST DURING WEEKDAYS!
+I need help, actual help
+Get me out of this household
+
 ***Hi! Hey! Hello! Welcome!***
 
 Everybody! Everyone of you! Every fictkin! Every SYS/alters! Every furries! Every Therians! All of you are welcome here!! No one is left out in my sight!!! <33
