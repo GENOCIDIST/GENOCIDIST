@@ -2,9 +2,11 @@
 
 # WARNING!!
 
-I WILL ONLY BE ONLINE FROM 8:40AM CST TO 4:36PM CST DURING WEEKDAYS!
-I need help, actual help
-Get me out of this household
+- I WILL ONLY BE ONLINE FROM 8:40AM CST TO 4:36PM CST DURING WEEKDAYS!
+- I need help, actual help
+- Get me out of this household
+- sleeping on the floor hurts
+- I can't handle this
 
 ***Hi! Hey! Hello! Welcome!***
 
