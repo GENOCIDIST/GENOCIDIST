@@ -3,10 +3,6 @@
 # WARNING!!
 
 - I WILL ONLY BE ONLINE FROM 8:40AM CST TO 4:36PM CST DURING WEEKDAYS! Monday - Friday during school days
-- I need help, actual help
-- Get me out of this household
-- sleeping on the floor hurts
-- I can't handle this
 
 ***Hi! Hey! Hello! Welcome!***
 
@@ -43,8 +39,6 @@ I'm Chris! I go by Christopher, Kris, Acid or Waters!! I do have a real name tha
 ***FRIENDS I HANG OUT W A LOT!!/FRIEND OF A FRIEND I THINK R COOL!!:***
 
 - Austin (Ayaa), LOVE YOU TO THE MOON AND BACK!! MY GREATEST ONLINE BROTHER!
-- Felix, SWEETEST THING EVER!!! <3
-- Bryce, SWEETEST PERSON AAAAH, YOU & FELIX MAKE ME JUMP JOYOUSLY!!
 - Scottie, SWEETEST MUNCHKIN GRGRHEGR, LOVE YOU SO MUCH! /P
 - Veev, You're so sweet!! I will value our friendship! <3
 - Nacho, Nahco... YOU'RE COOL!! dni <3
