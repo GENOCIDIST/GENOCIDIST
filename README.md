@@ -18,6 +18,9 @@ I'm Chris! I go by Christopher, Kris, Acid or Waters!! I do have a real name tha
 - I have a romantic partner (M,17), I will turn down ANY confessions!
 - I'm a very affectionate person! Everything I say to you or anyone as a friend will be seen as a platonic act! I do not carry any romantic feelings in any way!
 
+![image](https://github.com/user-attachments/assets/548c7aff-f0df-4626-a1be-f94310d53874)
+
+
 ***Pronouns!:***
 
 - I go by any pronouns, you name it! Commonly He/Him, She/Her, They/Them!! I prefer He/Him or They/Them!
@@ -49,9 +52,6 @@ I'm Chris! I go by Christopher, Kris, Acid or Waters!! I do have a real name tha
 - Will add more when I meet coolio friends!
 
 ![mewhenmiku](https://github.com/user-attachments/assets/399161a4-da28-41df-b832-de1b706e2b21)
-
-![MIKKKUU](https://github.com/user-attachments/assets/291cdb3c-f4d9-42b0-aafb-202dfe1b55a7)
-
 
 ***BYI!:***
 
