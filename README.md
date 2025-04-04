@@ -18,8 +18,7 @@ I'm Chris! I go by Christopher, Kris, Acid or Waters!! I do have a real name tha
 - I have a romantic partner (M,17), I will turn down ANY confessions!
 - I'm a very affectionate person! Everything I say to you or anyone as a friend will be seen as a platonic act! I do not carry any romantic feelings in any way!
 
-![image](https://github.com/user-attachments/assets/548c7aff-f0df-4626-a1be-f94310d53874)
-
+![image](https://github.com/user-attachments/assets/de56b4f9-c348-437c-ac6d-f3b28496b59c)
 
 ***Pronouns!:***
 
