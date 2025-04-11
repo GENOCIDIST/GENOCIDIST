@@ -1,32 +1,33 @@
 # .・。.・゜✭・.・✫・゜・。.
 
+the gang and there's me,,,
+![Screenshot 2025-04-11 12 19 57 PM](https://github.com/user-attachments/assets/cad82fce-71fb-4fe7-8b5c-98083144bb7c)
+
 # WARNING!!
 
 - I WILL ONLY BE ONLINE FROM 8:40AM CST TO 4:36PM CST DURING WEEKDAYS! Monday - Friday during school days
 
-***Hi! Hey! Hello! Welcome!***
+# ***Hi! Hey! Hello! Welcome!***
 
 Everybody! Everyone of you! Every fictkin! Every SYS/alters! Every furries! Every Therians! All of you are welcome here!! No one is left out in my sight!!! <33
 
-***About me!:***
+# ***About me!:***
 
 I'm Chris! I go by Christopher, Kris, Acid or Waters!! I do have a real name that's used by closest friends & my partner. Please respect that and never use it to address me!
-- I'm currently 16, will turn 17 soon in 3 months! ^^
+- I'm currently 16, will turn 17 soon on June 17th!! ^^
 - I'm a very quiet, but friendly type of person! I act nonchalant (dread head...), but worry not!; I'm very calm most of the time and will talk to you when I can!
 - On ponytown, I will be shown as offline so do not worry about me unfriending you! I only do with a reason or I couldn't remember you...
 - I will block freely depending on behavior, words and actions. It doesn't have to be in pony town only, this includes Discord, Github, any other social medias involved...
 - I have a romantic partner (M,17), I will turn down ANY confessions!
 - I'm a very affectionate person! Everything I say to you or anyone as a friend will be seen as a platonic act! I do not carry any romantic feelings in any way!
 
-![image](https://github.com/user-attachments/assets/de56b4f9-c348-437c-ac6d-f3b28496b59c)
-
-***Pronouns!:***
+# ***Pronouns!:***
 
 - I go by any pronouns, you name it! Commonly He/Him, She/Her, They/Them!! I prefer He/Him or They/Them!
 - Don't care much about labels anyway, Just don't use girl/woman on me too often!! Don't wanna be seen as one... u_u'
 - Sir/Ma'am/Fellow are okay!
 
- ***Some interests I have/like!:***
+# ***Some interests I have/like!:***
  
  - Homestuck
  - Undertale/Deltarune
@@ -38,21 +39,20 @@ I'm Chris! I go by Christopher, Kris, Acid or Waters!! I do have a real name tha
  - Partially Eddsworld... 
  - Call the name of the night (Manga!)
    
-***FRIENDS I HANG OUT W A LOT!!/FRIEND OF A FRIEND I THINK R COOL!!:***
+# ***FRIENDS I HANG OUT W A LOT!!/FRIEND OF A FRIEND I THINK R COOL!!:***
 
 - Austin (Ayaa), LOVE YOU TO THE MOON AND BACK!! MY GREATEST ONLINE BROTHER!
 - Scottie, SWEETEST MUNCHKIN GRGRHEGR, LOVE YOU SO MUCH! /P
 - Centifiend (Dirk), HII YOU'RE AWESOME!!!!
 - Nick, He's gonna beat me!! (Cool dude I admire n adore) <3
 - Veev, You're so sweet!! I will value our friendship! <3
-- Nacho, Nahco... YOU'RE COOL!! dni <3
+- Nacho, Nahco... YOU'RE COOL!! (dni) <3
 - Judas, You're comfortable to be around with! ^^
+- weta, 
 - Eden/Bro, Funny at times but overall, you and your alters are dope dude!
 - Will add more when I meet coolio friends!
 
-![mewhenmiku](https://github.com/user-attachments/assets/399161a4-da28-41df-b832-de1b706e2b21)
-
-***BYI!:***
+# ***BYI!:***
 
 - I can be very blunt with you! please don't get upset with whatever I say!! :(
 - I can be nonverbal at times due to my Chromebook lagging or I feel really out of place. I will express myself with gestures or will whisper back to you if you did first! ^^
@@ -67,24 +67,13 @@ I'm Chris! I go by Christopher, Kris, Acid or Waters!! I do have a real name tha
 - I do not vent unless you're a favorite person/comfort person I hang out a lot with! Vent dumps without warning will result you on getting a blunt response in that matter.
 - Do not vent to me unless you're a friend/close friend, All vents are welcome as long you are truthful and honest. There are some vents I will not be able to help with.
 
-***DNI:***
+# ***DNI:***
 
-- People who I blocked, unfriended with reasons! PLEASE do not come crawling back to me. It is a waste of time.
+basic dni etc,,, but don't be a dick! 
+- People who I blocked, unfriended with reasons! PLEASE do not try to add me back. It is a waste of time.
 - Eddsworld fandom, DNI.
 - Fight club fandom, DNI. (why are you guys a thing?)
 - Friends that are weirdos,,, genuinely.
 - CREEPY, WEIRDOS, PDF!!! LARGE DNI!!
 - SYS' with problematic alters, Hey now bud. I do not tolerate that.
 - SH, SA jokes are NOT allowed near me unless you're a close friend.
-
-***TRIGGER WORDS/JOKES/NAMES!!!:***
-
-- Chrispy.
-- Fat jokes, please dni.
-- SA/SH jokes without caution.
-- Zei
-- Gb (DNI)
-- Ty (DNI)
-- Ethan (I'm sorry if this is your name, but it's a trigger even for me.)
-
-***MIKU ART BELONGS TO SAINTTUFA ON INSTAGRAM!!***
