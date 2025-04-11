@@ -42,10 +42,10 @@ I'm Chris! I go by Christopher, Kris, Acid or Waters!! I do have a real name tha
 
 - Austin (Ayaa), LOVE YOU TO THE MOON AND BACK!! MY GREATEST ONLINE BROTHER!
 - Scottie, SWEETEST MUNCHKIN GRGRHEGR, LOVE YOU SO MUCH! /P
+- Centifiend (Dirk), HII YOU'RE AWESOME!!!!
+- Nick, He's gonna beat me!! (Cool dude I admire n adore) <3
 - Veev, You're so sweet!! I will value our friendship! <3
 - Nacho, Nahco... YOU'RE COOL!! dni <3
-- Keithian/Nick, coolest bro! finna beat you out of love
-- Centifiend, HII YOU'RE AWESOME!!!!
 - Judas, You're comfortable to be around with! ^^
 - Eden/Bro, Funny at times but overall, you and your alters are dope dude!
 - Will add more when I meet coolio friends!
