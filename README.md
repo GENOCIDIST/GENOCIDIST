@@ -48,7 +48,7 @@ I'm Chris! I go by Christopher, Kris, Acid or Waters!! I do have a real name tha
 - Veev, You're so sweet!! I will value our friendship! <3
 - Nacho, Nahco... YOU'RE COOL!! (dni) <3
 - Judas, You're comfortable to be around with! ^^
-- weta, 
+- weta, awesome dude!! :D
 - Eden/Bro, Funny at times but overall, you and your alters are dope dude!
 - Will add more when I meet coolio friends!
 
@@ -71,6 +71,7 @@ I'm Chris! I go by Christopher, Kris, Acid or Waters!! I do have a real name tha
 
 basic dni etc,,, but don't be a dick! 
 - People who I blocked, unfriended with reasons! PLEASE do not try to add me back. It is a waste of time.
+- My opps, GB, TY.
 - Eddsworld fandom, DNI.
 - Fight club fandom, DNI. (why are you guys a thing?)
 - Friends that are weirdos,,, genuinely.
