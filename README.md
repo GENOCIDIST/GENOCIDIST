@@ -16,9 +16,8 @@ Everybody! Everyone of you! Every fictkin! Every SYS/alters! Every furries! Ever
 I'm Chris! I go by Christopher, Kris, Acid or Waters!! I do have a real name that's used by closest friends & my partner. Please respect that and never use it to address me!
 - I'm currently 16, will turn 17 soon on June 17th!! ^^
 - I'm a very quiet, but friendly type of person! I act nonchalant (dread head...), but worry not!; I'm very calm most of the time and will talk to you when I can!
-- On ponytown, I will be shown as offline so do not worry about me unfriending you! I only do with a reason or I couldn't remember you...
+- On ponytown, do not worry about me unfriending you! I only do with a reason or I couldn't remember you...
 - I will block freely depending on behavior, words and actions. It doesn't have to be in pony town only, this includes Discord, Github, any other social medias involved...
-- I have a romantic partner (M,17), I will turn down ANY confessions!
 - I'm a very affectionate person! Everything I say to you or anyone as a friend will be seen as a platonic act! I do not carry any romantic feelings in any way!
 
 # ***Pronouns!:***
