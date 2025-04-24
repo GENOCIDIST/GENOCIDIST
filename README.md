@@ -41,18 +41,18 @@ I'm Chris! I go by Christopher, Kris, Acid or Waters!! I do have a real name tha
 # ***FRIENDS I HANG OUT W A LOT!!/FRIEND OF A FRIEND I THINK R COOL!!:***
 
 - Austin (Ayaa), LOVE YOU TO THE MOON AND BACK!! MY GREATEST ONLINE BROTHER!
+- Nick, My platonic husband <33 (he's gonna beat me)
 - Scottie, SWEETEST MUNCHKIN GRGRHEGR, LOVE YOU SO MUCH! /P
 - Centifiend (Dirk), HII YOU'RE AWESOME!!!!
-- Nick, He's gonna beat me!! (Cool dude I admire n adore) <3
+- Deni/Dorothy, My best bud!! <333
+- Weta, The cat to everything <33
 - Veev, You're so sweet!! I will value our friendship! <3
 - Nacho, Nahco... YOU'RE COOL!! (dni) <3
 - Judas, You're comfortable to be around with! ^^
-- weta, awesome dude!! :D
-- Eden/Bro, Funny at times but overall, you and your alters are dope dude!
 - Will add more when I meet coolio friends!
 
 # ***BYI!:***
-
+I don't rlly have a byi when it comes to other ppl but mostly about me, however I do not want any Bro Strider alters int with me. A friend who has a bro alter is fine,,, but on thin ice.
 - I can be very blunt with you! please don't get upset with whatever I say!! :(
 - I can be nonverbal at times due to my Chromebook lagging or I feel really out of place. I will express myself with gestures or will whisper back to you if you did first! ^^
 - Be honest with me. if you have a problem with me, at least take the time to talk to me about it! it's ANNOYING!
