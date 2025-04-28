@@ -41,7 +41,7 @@ I'm Chris! I go by Christopher, Kris, Acid or Waters!! I do have a real name tha
 # ***FRIENDS I HANG OUT W A LOT!!/FRIEND OF A FRIEND I THINK R COOL!!:***
 
 - Austin (Ayaa), LOVE YOU TO THE MOON AND BACK!! MY GREATEST ONLINE BROTHER!
-- Nick, My platonic husband <33 (he's gonna beat me)
+- Nick, no words to say <3 (he's gonna beat me)
 - Scottie, SWEETEST MUNCHKIN GRGRHEGR, LOVE YOU SO MUCH! /P
 - Centifiend (Dirk), HII YOU'RE AWESOME!!!!
 - Deni/Dorothy, My best bud!! <333
