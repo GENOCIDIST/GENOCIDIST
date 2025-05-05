@@ -6,8 +6,7 @@
  
 # HEADS UP!!
 
-- I WILL ONLY BE ONLINE FROM 8:40AM CST TO 4:36PM CST DURING WEEKDAYS! Monday - Friday during school days
-- you can scroll down now :3
+- I WILL ONLY BE ONLINE FROM 8:40AM CST TO 4:40PM CST DURING WEEKDAYS! Monday - Friday during school days
 
 # ➶-͙˚ ༘✶
 
@@ -17,5 +16,6 @@
 - My name is Chris, All of my friends address me by that name <3!
 - My real name is only used by closest friends, comfort person/favorite person <3.
 - I go by many names like Kris, Acid, Hito and Christopher !
-- 17+, under 14- dni :(
+- <ins>17+, under 14- dni</ins> (Friends I know are excluded)
 - I'm AroAce!! I'm *quite* afraid of relationships since I had recently ended mine,,, I only accept <ins>platonic</ins> love.
+- I can be non verbal at times due to my lag or if I feel _very_ upset ^_^'...
