@@ -1,5 +1,7 @@
 # .・。.・゜✭・.・✫・゜・。.
 
+![](https://komarev.com/ghpvc/?username=HITOGAWARII&color=green)
+
  WIP/REWORKING (me rn)
 
    <img src="https://github.com/user-attachments/assets/d6dc001b-a5c3-4a12-b13c-3fd8f7d50a81" width="500" height="300">
