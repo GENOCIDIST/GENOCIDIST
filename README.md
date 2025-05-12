@@ -1,6 +1,6 @@
 # .・。.・゜✭・.・✫・゜・。.
 
-![](https://komarev.com/ghpvc/?username=HITOGAWARII&color=green)
+![](https://komarev.com/ghpvc/?username=HITOGAWARII&color=green) ![](https://hit.yhype.me/github/profile?account_id=168235619)
 
  WIP/REWORKING (me rn)
 
