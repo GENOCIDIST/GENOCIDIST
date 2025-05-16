@@ -19,5 +19,7 @@
 - My real name is only used by closest friends, comfort person/favorite person <3.
 - I go by many names like Kris, Acid, Hito and Christopher !
 - <ins>17+, under 14- dni</ins> (Friends I know are excluded)
-- I'm AroAce!! I'm *quite* afraid of relationships since I had recently ended mine,,, I only accept <ins>platonic</ins> love.
+- I'm unlabeled for now. I'm *quite* afraid of relationships since I had recently ended mine,,, I only accept <ins>platonic</ins> love.
 - I can be non verbal at times due to my lag or if I feel _very_ upset ^_^'...
+
+# BYI 0_0'
