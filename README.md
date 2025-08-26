@@ -6,6 +6,6 @@
  
 # HEADS UP!!
 
-- Bye bye, going on a hiatus!!
+- Semi-Hiatus! Hellaaaoooww everynyan!
 
 # ➶-͙˚ ༘✶
