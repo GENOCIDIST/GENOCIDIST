@@ -2,4 +2,4 @@
   
 ![](https://komarev.com/ghpvc/?username=HITOGAWARII&color=green&style=plastic&label=stalkers) ![](https://hit.yhype.me/github/profile?account_id=168235619)
 
-only online from 8:20 am to 4:20 pm cst
+wanna make you cry like you knew
