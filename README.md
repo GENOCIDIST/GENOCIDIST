@@ -2,4 +2,4 @@
   
 ![](https://komarev.com/ghpvc/?username=HITOGAWARII&color=green&style=plastic&label=stalkers) ![](https://hit.yhype.me/github/profile?account_id=168235619)
 
-wanna make you cry like you knew
+I threw my past away, everything and everyone I used to know
