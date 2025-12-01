@@ -2,4 +2,4 @@
   
 ![](https://komarev.com/ghpvc/?username=HITOGAWARII&color=green&style=plastic&label=stalkers) ![](https://hit.yhype.me/github/profile?account_id=168235619)
 
-Strumming the guitar until my hand hurts
+will you stop appearing in my dreams and strangle me to death already?
